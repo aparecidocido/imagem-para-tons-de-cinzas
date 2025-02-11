@@ -1,0 +1,1 @@
+# imagem-para-tons-de-cinzas
